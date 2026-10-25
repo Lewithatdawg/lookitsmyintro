@@ -15,7 +15,7 @@ second reason is that I LIKE chatting with other people it's really fun and I th
 I'm danny and I like a bit of things.. not too much though so brace yourself...
 I like playing roblox with people that I know (especially you goober, YO MY FAVORITE  🫶🫶), I like watching and studying animation.. I like zootopia (I love the original concept of it and I LOVE the concept are for it) I like watching stop motion animation (looking at you isle of dogs) and I like.. I don't know.. I like watching movies sometimes, I don't have the freetime to watch a bunch.. I'm not too nerdy. I like collecting hot wheels here and there
 
-oh yeah I like lapfox and lapfox and lapfox and mcbushpig and a bit of Tyler the creator here and there.. my fav lapfox alias is emoticon anndd Omnicron complex  (niche I know 
+oh yeah I like lapfox and lapfox and lapfox and mcbushpig and a bit of Tyler the creator here and there.. my fav lapfox alias is emoticon anndd Omnicron complex  (niche I know )
 
 IWEC, well partially...
 I get triggered sometimes when people bring up Themes of sexual assault and people hurting themselves  😓 it bothers me so much because I've been through both of those (mostly hurting myself) and I don't like having the thought relapsing because it makes me sad... it reminds me of this time my ex CF told me hurt myself and hang myself.. along with cutting deeper which I still think about till this day.. but it's okay!! I'm okay now though just a little.. 
